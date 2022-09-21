@@ -10,7 +10,7 @@ When the exhausted mind was pondering through the axioms of ‘Group Theory’. 
 
 
 
-#Chapter 1: he founds another book.
+# Chapter 1: he founds another book.
 
 From that pierced-roof hut he moves and resumes his voyage to the horizontal road that showed no end at all. But he knew there must be some end to come. He ate both of the burgers and felt them as remedy to the unconscious pain he was dragging with himself. The rain takes its break, stream of water start to evaporate, wet road possesses pattern of black and grey due to the moisture, some of the brown dry leaves uphold gleamy drops of water refracting orange sun that was about to meet the dawn and then twilight.
 
