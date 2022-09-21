@@ -1,4 +1,4 @@
-chapter 0: he desists under the pierced roof.
+#chapter 0: he desists under the pierced roof.
 
 It was cold in there, whiteish wind, maybe accompanied by the fog or smoke of fire burnt somewhere, it was cinematic. As if he was put into the world of sophistication. The environment was the epitome of nature. The vehicle, he was coming with, an old rusty car was sheerly drenched by the light rain that was ubiquitous near him.
 
